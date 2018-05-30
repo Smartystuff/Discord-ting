@@ -1,2 +1,3 @@
 # Discord-ting
-WOW
+All comments go to my discord channel
+
